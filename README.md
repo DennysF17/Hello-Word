@@ -1,2 +1,4 @@
 # Hello-Word
-Aprendiz
+*Iniciante*
+# Geógrafo descobrindo novos horizontes
+# ~~29 anos~~
